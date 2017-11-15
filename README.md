@@ -1,8 +1,8 @@
 # wiersz1
 
-Był ciepły pogodny dzień
+Był ciepły pogodny ranek
 
-A ja wyglądałem jak cień;)
+A ja wyglądałem jak dzbanek (:
 
 i jak drzewa pień
 
