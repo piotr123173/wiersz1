@@ -1,9 +1,10 @@
 # wiersz1
 
-Był ciepły pogodny ranek
+ERROR
 
-A ja wyglądałem jak dzbanek (:
+ERROR
 
-i jak drzewa pień
+ERROR
 
-A obok stanął dureń
+ERROR
+
